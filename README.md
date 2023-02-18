@@ -4,18 +4,18 @@
 
 由于国内浏览器会对人视频进行画面揭无法访问，建议下载（google浏览器）看片无限制作。
 
-久久爱片最新地址：https://www.99aipian.xyz/
+久久爱片最新地址：https://www.hao123.com
 
-备用地址1：https://www.papasq.com/
+备用地址1：https://www.hao123.com
 
-备用地址2：https://www.zipaifl.com/
+备用地址2：https://www.hao123.com
 
-备用地址3：https://www.99aip4.com
+备用地址3：https://www.hao123.com
 
-备用地址4：https://www.99aip5.com
+备用地址4：https://www.hao123.com
 
-备用地址5：https://www.fulidy1.com/
+备用地址5：https://www.hao123.com
 
-如以上都无法打开时，可发送消息至【99aipian@gmail.com】获取最新地址。
+如以上都无法打开时，可发送消息至【hao123.@gmail.com】获取最新地址。
 
-备用地址5：https://www.nnpapa8.com/
+备用地址5：https://www.hao123.com

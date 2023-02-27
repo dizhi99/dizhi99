@@ -16,6 +16,6 @@
 
 备用地址5：https://www.hao123.com
 
-如以上都无法打开时，可发送消息至【hao123.@gmail.com】获取最新地址。
+如以上都无法打开时，可发送消息至【beiyongzhan.@gmail.com】获取最新地址。
 
 备用地址5：https://www.hao123.com

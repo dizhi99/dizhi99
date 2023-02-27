@@ -14,7 +14,7 @@
 
 备用地址4：https://www.hao123.com
 
-备用地址5：https://www.hao123.com
+备用地址5：<a href="https://www.hao123.com" target="_blank">hao123.com</a>
 
 如以上都无法打开时，可发送消息至【beiyongzhan.@gmail.com】获取最新地址。
 
